@@ -1,0 +1,16 @@
+# Week XX – Reflection
+
+## Intellectual Signal
+What did I learn or sharpen this week?
+
+## Strategic Signal
+Am I moving toward or away from my civilizational thesis?
+
+## Psychological Pattern
+What pattern showed up (good or bad)?
+
+## Grounding Check
+Did I operate from pressure or purpose?
+
+## One Sentence Summary
+This week was about ______.
